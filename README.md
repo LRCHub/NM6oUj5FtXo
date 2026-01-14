@@ -1,0 +1,54 @@
+# 尾崎裕哉 – Glory Days
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+You know we are free; so fly with me
+ここじゃない未来まで
+We'll reach our dreams straight through the haze
+掴み取れこの手にGlory Days
+Wow Wow Wow Wow
+何で自分が何の為に背負いたくない期待を
+何度背負って何度逃げて分かり始めていた
+言い訳がまた上手くなってく理由の
+言い訳はもうきっと出来ない
+You know we are free; so fly with me
+ここじゃない未来まで
+We'll reach our dreams straight through the haze
+掴み取れこの手にGlory Days
+One day we will see; we're meant to be
+もう今迷わない
+We'll rise to shine and feel the praise
+駆け抜けろ僕らのGlory Days
+Wow Wow Wow Wow
+全部時代のせいにしても重い気分晴れなくて
+全部人のせいにしても涙止まらなくて
+自分らしさは鏡に映らない背中に出るものだから
+君がそばでずっと僕がどんな馬鹿かって教えてくれよ
+明日さえ何も見えないのは今が
+輝いて眩しいせいさ
+You know we are free; so fly with me
+ここじゃない未来まで
+We'll reach our dreams straight through the haze
+掴み取れこの手にGlory Days
+One day we will see; we're meant to be
+もう今迷わない
+We'll rise to shine and feel the praise
+これからが僕らのGlory Days
+正しい答えはどこにもないくせに
+複雑な問題はどこかでまだ生まれて
+だけどまだそれを解くヒントはほら溢れている
+あの笑顔あの言葉胸に刻んでる
+You have reached my heart in many ways
+伸ばしたその手の
+One day we'll see; we're meant to be
+ほんの少し先にGlory Days
+You know we are free; so fly with me
+ここじゃない未来まで
+We'll reach our dreams straight through the haze
+掴み取れこの手にGlory Days
+One day we will see; we're meant to be
+もう今迷わない
+We'll rise to shine and feel the praise
+駆け抜けろ僕らのGlory Days
+```
